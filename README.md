@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @JaidenAnimates
+- 👋 Hi, I’m @JaidenAnimates/Jaidenthebluejay on discord
 - 👀 I’m interested in 
 - 🌱 I’m currently learning on how to make eagler clients
-- 💞️ I’m looking to collaborate on lave
+- 💞️ I’m looking to collaborate on making clients
 - 📫 How to reach me mushfiquryt@outlook.com
 
 <!---
