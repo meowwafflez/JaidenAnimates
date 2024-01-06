@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @st1ckrr on discord
-- 👀 I’m interested in 
+- 👀 I’m interested in Minecraft
 - 🌱 I’m currently learning on how to make eagler clients
 - 💞️ I’m looking to collaborate on making clients
 - 📫 How to reach me mushfiquryt@outlook.com
