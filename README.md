@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @JaidenAnimates/Jaidenthebluejay on discord
+- 👋 Hi, I’m @st1ckrr on discord
 - 👀 I’m interested in 
 - 🌱 I’m currently learning on how to make eagler clients
 - 💞️ I’m looking to collaborate on making clients
